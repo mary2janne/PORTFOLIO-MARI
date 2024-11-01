@@ -29,7 +29,7 @@ Olá! Sou **[marianne]** 👨‍⚕️👮, estudante de enfermagem e policial, 
 
 Sinta-se à vontade para me seguir nas redes sociais:
 
-- 📸 [Instagram](https://www.instagram.com/seu-instagram)
+- 📸 [Instagram](https://www.instagram.com/mari_silvaa043/profilecard/?igsh=eXcGc1Nj0cWf0)
 - 📘 [Facebook](https://www.facebook.com/seu-facebook)
 - 💬 [WhatsApp](https://wa.me/seu-número)
 - 📺 [YouTube](https://www.youtube.com/c/seu-canal)
